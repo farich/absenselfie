@@ -1,0 +1,2 @@
+# absenselfie
+absen guru
